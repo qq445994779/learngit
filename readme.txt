@@ -1,1 +1,3 @@
-第二次试验这个github，还不是很熟练�：�
+remove all chinese and then test english.
+It's so exciting.
+I like it very much.
